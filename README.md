@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Breach97
+- 👀 I’m interested in fantasy and sport 
+- 🌱 I’m currently learning how to use github
+- 💞️ I’m looking to collaborate on a chatbot project 
+- 📫 reach me by shooting and email at tommasoignorini1997@gmail.com
